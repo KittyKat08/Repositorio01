@@ -1,2 +1,2 @@
 # Oiiiie
-Não sei como vc achou meu perfil 👀 Maaaas, ok...
+Você consegue tomar leite para dormir, mas não consegue tomar café para acordar 💡🧠
